@@ -1,0 +1,2 @@
+# Seasonal-Agriculture-Performance-Analysis
+FINAL PROJECT VOIS FOR TECH INTERNSHIP BY EDUNET FOUNDATION
